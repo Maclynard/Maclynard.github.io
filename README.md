@@ -1,1 +1,0 @@
-# Maclynardparagas.github.io
